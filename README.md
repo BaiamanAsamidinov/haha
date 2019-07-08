@@ -6,3 +6,5 @@ dlfkas
 Assaloomu aleikum
 adklfklsel
 
+Aleikum assalom
+
